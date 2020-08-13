@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 👋
 
 Hi, My name is Ceren
 I writer, 
